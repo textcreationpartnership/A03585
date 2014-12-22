@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A LEARNED AND COMFORTABLE SERMON OF THE certaintie and perpetuitie of faith in the Elect; especially
+
 #####Body#####
 ABAC. 1.4.Whether the Prophet Abacuck by admitting this cogitation into his minde, The Law doth fail
 **Types of content**
